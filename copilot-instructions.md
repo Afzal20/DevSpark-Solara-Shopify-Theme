@@ -1,0 +1,1 @@
+/media/afzal/SET/DevSpark-Solara-Shopify-Theme/AGENTS.md
